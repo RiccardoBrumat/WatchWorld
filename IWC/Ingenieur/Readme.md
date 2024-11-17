@@ -5,8 +5,8 @@ IW328901
 40mm <br>
 120h riserva
 
-Calibro 3211
-Stesso calibro di Mark II
+Calibro 3211 <br>
+Stesso calibro di Mark II <br>
 Pare non tutto "in house" - ma Richmond ETA modificato
 
 13'000€ retail price <br>
