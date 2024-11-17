@@ -11,3 +11,8 @@ Pare non tutto "in house" - ma Richmond ETA modificato
 
 13'000€ retail price <br>
 7'000€ second hand
+
+Problema <br>
+Una volta era venduto a prezzi piu bassi <br>
+Di secondo polso era un orologio che andava per i 5-6k <br> 
+I vecchi Ingenieur sono molto simili
