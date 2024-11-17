@@ -16,9 +16,21 @@ Fanno misure grandi a 43 e 44
 Sono spessi a 14mm piu di Tudor Rolez Zenith
 
 Pricing
-Acciaio con bracciale in pelle a 10k
-Morgan Stanley 
+Watch Report 2023 average retail 7k CHF - quindi vendono prevalentemente orologi della loro fascia bassa
+Mark XX > Pilot Chrono > Ingenieur - Hanno lo stesso movimento ha sono separati uno dall'altro da 2k a crescere
+Sono visti come strumenti e non come gioielli quindi il valore scende sempre
 
-Complication
+Complication <br>
+Ethernal Calendar è uno dei migliori movimenti
+IWC Big Pilot Perpetual Calendar ha il valore crolla nel mercato secondario 
+
 Desirability
+Tipologie di orologi:
+Dive Watches - Tipo Tudor Black Bay 41 monochrome + Submariner + Seiko 61MAS + Seamaster 300M
+Sport Watches - Tipo Rolex Datejust + Omega Aqua Terra + Nomos Neomatik Club Sport 
+Integrated Sport Watches - 
+Sport Cronoghraph - Tipo Rolex Daytona + Omega Speedmaster + Zenith El Primero + JLC Polaris 
+Playful Dress Watches
+
 Design Language
+Poco design language e direzione
