@@ -15,7 +15,7 @@ Sizing <br>
 Fanno misure grandi a 43 e 44
 Sono spessi a 14mm piu di Tudor Rolez Zenith
 
-Pricing
+Pricing <br>
 Watch Report 2023 average retail 7k CHF - quindi vendono prevalentemente orologi della loro fascia bassa
 Mark XX > Pilot Chrono > Ingenieur - Hanno lo stesso movimento ha sono separati uno dall'altro da 2k a crescere
 Sono visti come strumenti e non come gioielli quindi il valore scende sempre
