@@ -24,7 +24,7 @@ Complication <br>
 Ethernal Calendar è uno dei migliori movimenti
 IWC Big Pilot Perpetual Calendar ha il valore crolla nel mercato secondario 
 
-Desirability
+Desirability <br>
 Tipologie di orologi:
 Dive Watches - Tipo Tudor Black Bay 41 monochrome + Submariner + Seiko 61MAS + Seamaster 300M
 Sport Watches - Tipo Rolex Datejust + Omega Aqua Terra + Nomos Neomatik Club Sport 
@@ -32,5 +32,5 @@ Integrated Sport Watches -
 Sport Cronoghraph - Tipo Rolex Daytona + Omega Speedmaster + Zenith El Primero + JLC Polaris 
 Playful Dress Watches
 
-Design Language
+Design Language <br>
 Poco design language e direzione
