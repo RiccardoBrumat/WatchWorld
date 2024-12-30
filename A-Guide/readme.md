@@ -9,7 +9,7 @@ Buying framework and evaluation
 * Thinner watches mandates a better arranged movement
 * High power reserve means better quality movement
 * Higher beats per second from 4Hz up
-* META certifications
+* META or COSC certifications
 * Magnetism
 * Shock resitant
 * Accuaracy
