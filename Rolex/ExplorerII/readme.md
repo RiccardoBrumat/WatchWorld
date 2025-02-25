@@ -4,13 +4,11 @@ Ref.: https://www.analogshift.com/blogs/transmissions/guide-to-the-rolex-explore
 HISTORY
 
 Explorer II Reference 16550 (1985-1989) 
-
-Explorer II Reference 16570 (1989-2011) 
-16570 'Holey' Lugs  vs. 16570 Solid Lugs 
 <br>
-1st revision
+Explorer II Reference 16570 (1989-2011) <br>
+16570 'Holey' Lugs  vs. 16570 Solid Lugs <br>
+1st revision<br>
 <br>
-2nd revision
-
+2nd revision<br>
 <br>
 Explorer II Reference 216570 (2011-2021) 
